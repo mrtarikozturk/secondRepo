@@ -1,1 +1,1 @@
-bu simdi birinci repoda yapildi/
+bu simdi ikinci repoda yapildi/
