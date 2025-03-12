@@ -1,1 +1,1 @@
-bu gelen degisiklik
+bu simdi birinci repoda yapildi/
